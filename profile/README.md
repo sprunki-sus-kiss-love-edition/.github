@@ -1,6 +1,10 @@
 # Sprunki Sinner - Sprunki Kiss - Sprunki SUS - Play Edition MOD
 
-## [Play Sprunki Sinner Edition](https://modmeme.com/sprunki-kiss-edition/) - [Play Sprunki Kiss](https://modmeme.com/sprunki-kiss-edition/) - [PLay Sprunki SUS](https://modmeme.com/sprunki-sus/)
+## [Play Sprunki Sinner Edition](https://modmeme.com/sprunki-kiss-edition/) 
+
+## [Play Sprunki Kiss](https://modmeme.com/sprunki-kiss-edition/) 
+
+## [PLay Sprunki SUS](https://modmeme.com/sprunki-sus/)
 
 ## [More Version!](https://apkitech.com/category/games/online-games/)
 
